@@ -1,1 +1,1 @@
-image to reume
+image to resume
